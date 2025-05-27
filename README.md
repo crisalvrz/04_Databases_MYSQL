@@ -1,1 +1,1 @@
-Done during the first term of ASIR.
+Done during the first year of ASIR.
